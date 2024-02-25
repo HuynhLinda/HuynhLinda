@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things and building stuff.
 - 🌱 I’m currently learning relational databases
 - 💞️ I want to collaborate on anything I can be taught about and understand fully or have an idea of.  
-- 📫 How to reach me, DISCORD: gelatofelato
+- 📫 How to reach me, DISCORD: gelatofelato or badfishguh
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I play guitar.
 
